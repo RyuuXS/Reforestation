@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
