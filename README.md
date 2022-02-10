@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
