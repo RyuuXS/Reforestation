@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
