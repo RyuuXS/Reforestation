@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
