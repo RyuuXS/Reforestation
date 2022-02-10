@@ -1,1 +1,2 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
