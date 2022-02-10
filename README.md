@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
