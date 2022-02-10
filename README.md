@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
