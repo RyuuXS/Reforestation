@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
