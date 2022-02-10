@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## I asked a frenchman if he played video games. He said "Wii"
