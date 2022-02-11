@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## How does a French skeleton say hello? Bone-jour.
