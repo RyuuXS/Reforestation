@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
