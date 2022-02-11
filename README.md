@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
