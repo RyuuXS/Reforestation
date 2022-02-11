@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
