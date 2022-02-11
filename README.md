@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Our wedding was so beautiful, even the cake was in tiers.
