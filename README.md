@@ -1,1 +1,2 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## What is the best way to carve?
+## Whittle by whittle.
