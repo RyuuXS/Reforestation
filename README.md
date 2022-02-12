@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Breaking news! Energizer Bunny arrested – charged with battery.
