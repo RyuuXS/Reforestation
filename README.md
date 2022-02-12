@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What do you call a fly without wings? A walk.
