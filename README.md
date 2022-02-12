@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
