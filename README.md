@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
