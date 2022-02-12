@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Who did the wizard marry? His ghoul-friend
