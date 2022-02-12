@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
