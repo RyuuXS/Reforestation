@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
