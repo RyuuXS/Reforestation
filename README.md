@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What's orange and sounds like a parrot? A Carrot.
