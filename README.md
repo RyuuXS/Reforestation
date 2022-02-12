@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why don't sharks eat clowns?  Because they taste funny.
