@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
