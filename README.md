@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
