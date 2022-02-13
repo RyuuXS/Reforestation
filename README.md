@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
