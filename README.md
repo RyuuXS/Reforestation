@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What do you call a group of killer whales playing instruments? An Orca-stra.
