@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
