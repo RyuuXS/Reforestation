@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
