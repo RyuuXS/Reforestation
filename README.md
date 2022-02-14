@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
