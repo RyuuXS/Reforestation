@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## A book just fell on my head. I only have my shelf to blame.
