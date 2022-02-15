@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
