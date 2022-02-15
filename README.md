@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
