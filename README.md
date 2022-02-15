@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## I've just written a song about a tortilla. Well, it is more of a rap really.
