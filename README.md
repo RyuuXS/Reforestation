@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
