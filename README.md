@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
