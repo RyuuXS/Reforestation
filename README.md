@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## What did the digital clock say to the grandfather clock? Look, no hands!
