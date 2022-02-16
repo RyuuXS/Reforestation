@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## I'd like to start a diet, but I've got too much on my plate right now.
