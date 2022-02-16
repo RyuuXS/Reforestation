@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## How do you make a hankie dance? Put a little boogie in it.
