@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
