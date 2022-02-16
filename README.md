@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## How do you get two whales in a car? Start in England and drive West.
