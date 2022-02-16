@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
