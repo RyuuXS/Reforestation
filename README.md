@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
