@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## I used to work in a shoe recycling shop. It was sole destroying.
