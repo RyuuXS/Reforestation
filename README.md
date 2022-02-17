@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
