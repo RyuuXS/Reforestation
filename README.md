@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
