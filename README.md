@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Mountains aren't just funny, they are hill areas
