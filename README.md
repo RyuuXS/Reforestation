@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I tried to write a chemistry joke, but could never get a reaction.
