@@ -1,1 +1,3 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
