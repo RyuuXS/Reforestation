@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
