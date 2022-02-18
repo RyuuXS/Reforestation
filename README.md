@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Why do choirs keep buckets handy? So they can carry their tune
