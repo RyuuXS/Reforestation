@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
