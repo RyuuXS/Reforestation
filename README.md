@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## There's not really any training for garbagemen. They just pick things up as they go.
