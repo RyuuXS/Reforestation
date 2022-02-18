@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
