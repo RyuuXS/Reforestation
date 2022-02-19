@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
