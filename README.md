@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
