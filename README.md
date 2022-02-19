@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## I considered building the patio by myself. But I didn't have the stones.
