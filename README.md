@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
