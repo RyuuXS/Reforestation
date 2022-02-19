@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
