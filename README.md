@@ -1,1 +1,1 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## You can't run through a camp site. You can only ran, because it's past tents.
