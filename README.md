@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
