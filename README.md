@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## I couldn't get a reservation at the library. They were completely booked.
