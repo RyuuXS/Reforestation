@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## What's black and white and read all over? The newspaper.
