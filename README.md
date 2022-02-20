@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Mountains aren't just funny, they are hill areas
