@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why did the kid cross the playground? To get to the other slide.
