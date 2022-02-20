@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
