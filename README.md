@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why do bees have sticky hair? Because they use honey combs!
