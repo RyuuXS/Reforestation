@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What kind of dinosaur loves to sleep? A stega-snore-us.
