@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
