@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## Leather is great for sneaking around because it's made of hide.
