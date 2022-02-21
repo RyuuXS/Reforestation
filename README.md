@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## Why was the robot angry? Because someone kept pressing his buttons!
