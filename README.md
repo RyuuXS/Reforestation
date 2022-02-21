@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## What did one nut say as he chased another nut?  I'm a cashew!
