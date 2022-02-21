@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
