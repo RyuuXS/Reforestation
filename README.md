@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
