@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## There's not really any training for garbagemen. They just pick things up as they go.
