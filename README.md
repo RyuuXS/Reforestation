@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
