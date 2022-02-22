@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What did the big flower say to the littler flower? Hi, bud!
