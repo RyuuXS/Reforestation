@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What has ears but cannot hear? A field of corn.
