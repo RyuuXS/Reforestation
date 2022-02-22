@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
