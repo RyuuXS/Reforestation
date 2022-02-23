@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why are fish so smart? Because they live in schools!
