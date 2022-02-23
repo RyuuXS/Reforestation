@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## I’m on a whiskey diet. I’ve lost three days already.
