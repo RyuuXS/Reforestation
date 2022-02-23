@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What kind of pants do ghosts wear? Boo jeans.
