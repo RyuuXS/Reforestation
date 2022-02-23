@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What did the fish say when it swam into a wall? Damn!
