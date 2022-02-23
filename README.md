@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## What did the left eye say to the right eye? Between us, something smells!
