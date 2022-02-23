@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
