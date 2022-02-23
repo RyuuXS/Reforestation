@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why do cows wear bells? Because their horns don't work.
