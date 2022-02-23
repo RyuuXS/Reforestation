@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## An apple a day keeps the bullies away. If you throw it hard enough.
