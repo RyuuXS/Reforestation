@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
