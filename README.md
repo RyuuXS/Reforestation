@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## An apple a day keeps the bullies away. If you throw it hard enough.
