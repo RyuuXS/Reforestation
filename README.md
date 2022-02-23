@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
