@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Whoever invented the knock-knock joke should get a no bell prize.
