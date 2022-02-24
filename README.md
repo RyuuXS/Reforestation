@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
