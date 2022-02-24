@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
