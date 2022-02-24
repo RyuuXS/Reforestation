@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
