@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
