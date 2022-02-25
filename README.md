@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## What do I look like? A JOKE MACHINE!?
