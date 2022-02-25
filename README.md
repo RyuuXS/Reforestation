@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## I started a new business making yachts in my attic this year...the sails are going through the roof
