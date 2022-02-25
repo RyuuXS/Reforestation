@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
