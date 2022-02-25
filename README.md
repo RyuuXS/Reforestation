@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
