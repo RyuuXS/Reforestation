@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Why do crabs never give to charity? Because they’re shellfish.
