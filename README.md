@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
