@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
