@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Why was the robot angry? Because someone kept pressing his buttons!
