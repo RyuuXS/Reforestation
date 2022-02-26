@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Why was the picture sent to prison? It was framed.
