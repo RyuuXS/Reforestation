@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
