@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
