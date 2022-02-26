@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What is the hardest part about sky diving? The ground.
