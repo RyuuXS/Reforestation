@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## How do you get a baby alien to sleep?  You rocket.
