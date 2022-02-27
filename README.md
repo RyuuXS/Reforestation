@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
