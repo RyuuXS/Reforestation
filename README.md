@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
