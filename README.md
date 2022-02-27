@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
