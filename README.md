@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
