@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
