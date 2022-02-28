@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
