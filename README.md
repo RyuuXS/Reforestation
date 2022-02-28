@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
