@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
