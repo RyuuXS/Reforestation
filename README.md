@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Leather is great for sneaking around because it's made of hide.
