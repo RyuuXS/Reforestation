@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
