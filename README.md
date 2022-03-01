@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
