@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
