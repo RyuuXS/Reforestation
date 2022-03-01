@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why was it called the dark ages? Because of all the knights. 
