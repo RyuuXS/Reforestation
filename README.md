@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
