@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
