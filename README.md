@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## How do you make holy water? You boil the hell out of it.
