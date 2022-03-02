@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
