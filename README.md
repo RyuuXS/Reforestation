@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Where do sheep go to get their hair cut? The baa-baa shop.
