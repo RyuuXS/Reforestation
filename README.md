@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
