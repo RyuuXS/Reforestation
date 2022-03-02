@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
