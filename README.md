@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## What do you call a boy who stopped digging holes? Douglas.
