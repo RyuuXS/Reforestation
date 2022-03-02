@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## A cannibal is someone who is fed up with people.
