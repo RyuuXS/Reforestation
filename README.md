@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## How do robots eat guacamole? With computer chips.
