@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
