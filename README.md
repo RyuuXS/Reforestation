@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
