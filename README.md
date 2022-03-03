@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
