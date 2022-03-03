@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Me and my mates are in a band called Duvet. We're a cover band.
