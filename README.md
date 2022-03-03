@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Two guys walked into a bar, the third one ducked.
