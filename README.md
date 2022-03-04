@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What time did the man go to the dentist? Tooth hurt-y.
