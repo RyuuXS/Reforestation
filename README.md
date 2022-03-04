@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
