@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I was going to get a brain transplant, but I changed my mind
