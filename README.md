@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## I just got fired from a florist, apparently I took too many leaves.
