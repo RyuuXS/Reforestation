@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
