@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
