@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why are skeletons so calm? Because nothing gets under their skin.
