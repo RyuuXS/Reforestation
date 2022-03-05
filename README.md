@@ -1,1 +1,1 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
