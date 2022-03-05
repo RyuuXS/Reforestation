@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
