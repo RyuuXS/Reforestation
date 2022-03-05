@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Why do ducks make great detectives? They always quack the case.
