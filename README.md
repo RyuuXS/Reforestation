@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Want to hear a joke about construction? Nah, I'm still working on it.
