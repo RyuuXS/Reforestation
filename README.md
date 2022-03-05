@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## How do the trees get on the internet? They log on.
