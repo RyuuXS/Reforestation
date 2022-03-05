@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
