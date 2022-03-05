@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Where do hamburgers go to dance? The meat-ball.
