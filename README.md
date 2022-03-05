@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
