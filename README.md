@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What's orange and sounds like a parrot? A Carrot.
