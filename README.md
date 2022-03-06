@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Why didn’t the skeleton cross the road? Because he had no guts.
