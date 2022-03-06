@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
