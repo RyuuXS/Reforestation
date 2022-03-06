@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## You can't trust a ladder. It will always let you down
