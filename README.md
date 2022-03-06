@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
