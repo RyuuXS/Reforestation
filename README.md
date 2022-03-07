@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## What time did the man go to the dentist? Tooth hurt-y.
