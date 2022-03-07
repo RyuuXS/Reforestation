@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I had a dream that I was a muffler last night. I woke up exhausted!
