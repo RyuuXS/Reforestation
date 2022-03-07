@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Why did the miner get fired from his job? He took it for granite...
