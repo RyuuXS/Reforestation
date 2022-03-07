@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What's red and bad for your teeth? A Brick.
