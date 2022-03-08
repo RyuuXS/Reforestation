@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why did the coffee file a police report? It got mugged.
