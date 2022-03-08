@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why did the kid cross the playground? To get to the other slide.
