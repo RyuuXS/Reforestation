@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## Two guys walked into a bar, the third one ducked.
