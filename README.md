@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
