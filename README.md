@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
