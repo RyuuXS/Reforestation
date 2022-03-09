@@ -1,1 +1,1 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
