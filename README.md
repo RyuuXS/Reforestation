@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
