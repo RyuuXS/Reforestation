@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## What do you call a bee that lives in America? A USB.
