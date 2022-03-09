@@ -1,1 +1,3 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
