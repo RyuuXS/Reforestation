@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
