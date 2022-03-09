@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
