@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
