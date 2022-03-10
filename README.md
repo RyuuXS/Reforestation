@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## What do you do when your bunny gets wet? You get your hare dryer.
