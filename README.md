@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
