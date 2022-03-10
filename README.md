@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
