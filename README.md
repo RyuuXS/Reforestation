@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
