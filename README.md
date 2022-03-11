@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I decided to sell my Hoover… well it was just collecting dust.
