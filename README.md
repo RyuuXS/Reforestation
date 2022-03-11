@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## "I'm sorry." "Hi sorry, I'm dad"
