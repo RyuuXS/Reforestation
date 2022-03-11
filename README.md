@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
