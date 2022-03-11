@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
