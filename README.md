@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
