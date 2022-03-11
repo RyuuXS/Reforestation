@@ -1,1 +1,1 @@
-## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
