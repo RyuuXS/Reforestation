@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
