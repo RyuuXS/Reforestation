@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## You know that cemetery up the road? People are dying to get in there.
