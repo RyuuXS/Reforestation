@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
