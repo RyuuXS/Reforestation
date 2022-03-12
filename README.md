@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
