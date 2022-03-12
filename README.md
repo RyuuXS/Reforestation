@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why did the tomato blush? Because it saw the salad dressing.
