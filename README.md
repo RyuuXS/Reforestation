@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## How come a man driving a train got struck by lightning? He was a good conductor.
