@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Why was the robot angry? Because someone kept pressing his buttons!
