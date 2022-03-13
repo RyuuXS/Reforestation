@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## You can't run through a camp site. You can only ran, because it's past tents.
