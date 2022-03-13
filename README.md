@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
