@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
