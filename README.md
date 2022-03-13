@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
