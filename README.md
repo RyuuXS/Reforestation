@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## How do the trees get on the internet? They log on.
