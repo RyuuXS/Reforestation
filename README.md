@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
