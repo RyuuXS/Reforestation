@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
