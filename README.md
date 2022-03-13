@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## What did the shy pebble wish for? That she was a little boulder.
