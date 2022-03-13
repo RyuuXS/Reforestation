@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## A magician was driving down the street and then he turned into a driveway.
