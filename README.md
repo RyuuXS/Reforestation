@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
