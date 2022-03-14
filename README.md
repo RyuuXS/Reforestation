@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
