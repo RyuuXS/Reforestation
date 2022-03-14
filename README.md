@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## How are false teeth like stars? They come out at night!
