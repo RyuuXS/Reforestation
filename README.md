@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What do you do when your bunny gets wet? You get your hare dryer.
