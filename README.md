@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## What do you call a boomerang that won't come back? A stick.
