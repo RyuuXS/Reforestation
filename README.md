@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
