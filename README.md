@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why was Pavlov's beard so soft?  Because he conditioned it.
