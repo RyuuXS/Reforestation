@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
