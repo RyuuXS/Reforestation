@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## The best time on a clock is 6:30--hands down.
