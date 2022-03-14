@@ -1,1 +1,2 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What did the green grape say to the purple grape?
+## BREATH!!
