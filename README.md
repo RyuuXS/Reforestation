@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## I got fired from a florist, apparently I took too many leaves.
