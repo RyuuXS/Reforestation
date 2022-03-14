@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
