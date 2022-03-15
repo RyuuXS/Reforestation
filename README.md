@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
