@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## An apple a day keeps the bullies away. If you throw it hard enough.
