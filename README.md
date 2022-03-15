@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
