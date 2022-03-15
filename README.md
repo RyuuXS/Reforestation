@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
