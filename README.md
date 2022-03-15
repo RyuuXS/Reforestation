@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## I asked a frenchman if he played video games. He said "Wii"
