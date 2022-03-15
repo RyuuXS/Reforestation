@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## To the guy who invented zero... thanks for nothing.
