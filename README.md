@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
