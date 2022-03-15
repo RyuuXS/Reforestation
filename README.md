@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
