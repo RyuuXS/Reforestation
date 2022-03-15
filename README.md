@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## How does Darth Vader like his toast? On the dark side.
