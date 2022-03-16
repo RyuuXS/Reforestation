@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Where do rabbits go after they get married? On a bunny-moon.
