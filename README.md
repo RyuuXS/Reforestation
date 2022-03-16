@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
