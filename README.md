@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
