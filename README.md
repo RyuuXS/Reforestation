@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What does a clock do when it's hungry? It goes back four seconds!
