@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
