@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
