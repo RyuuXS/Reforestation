@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## How does a scientist freshen their breath? With experi-mints!
