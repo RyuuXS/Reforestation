@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
