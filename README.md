@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What did the digital clock say to the grandfather clock? Look, no hands!
