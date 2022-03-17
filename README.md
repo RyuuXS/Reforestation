@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I burned 2000 calories today, I left my food in the oven for too long.
