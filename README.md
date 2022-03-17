@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why do bees hum? Because they don't know the words.
