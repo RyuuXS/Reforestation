@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## The best time on a clock is 6:30--hands down.
