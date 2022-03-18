@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Why are ghosts bad liars? Because you can see right through them!
