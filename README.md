@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
