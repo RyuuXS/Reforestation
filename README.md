@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## How does a scientist freshen their breath? With experi-mints!
