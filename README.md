@@ -1,1 +1,1 @@
-## *Reversing the car* "Ah, this takes me back"
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
