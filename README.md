@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
