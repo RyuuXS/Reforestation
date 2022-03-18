@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Me and my mates are in a band called Duvet. We're a cover band.
