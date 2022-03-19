@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
