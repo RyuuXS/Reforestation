@@ -1,1 +1,2 @@
-## I was going to get a brain transplant, but I changed my mind
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
