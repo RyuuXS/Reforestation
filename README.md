@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## What time did the man go to the dentist? Tooth hurt-y.
