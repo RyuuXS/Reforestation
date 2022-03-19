@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## I got an A on my origami assignment when I turned my paper into my teacher
