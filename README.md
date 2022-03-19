@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
