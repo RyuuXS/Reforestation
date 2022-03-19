@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
