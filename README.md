@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## I’m on a whiskey diet. I’ve lost three days already.
