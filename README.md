@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
