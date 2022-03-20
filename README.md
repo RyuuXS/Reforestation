@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
