@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
