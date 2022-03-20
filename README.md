@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
