@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
