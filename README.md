@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
