@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
