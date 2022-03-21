@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
