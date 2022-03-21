@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## What did the ocean say to the shore? Nothing, it just waved.
