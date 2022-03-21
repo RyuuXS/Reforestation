@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Every night at 11:11, I make a wish that someone will come fix my broken clock.
