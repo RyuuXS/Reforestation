@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
