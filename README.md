@@ -1,1 +1,3 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
