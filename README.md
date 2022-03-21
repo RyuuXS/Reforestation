@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
