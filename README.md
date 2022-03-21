@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
