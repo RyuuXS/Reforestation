@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## I was wondering why the frisbee was getting bigger, then it hit me.
