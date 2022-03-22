@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
