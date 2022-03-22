@@ -1,1 +1,3 @@
-## Why was the broom late for the meeting? He overswept.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
