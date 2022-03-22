@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## I ordered a chicken and an egg from Amazon. I'll let you know.
