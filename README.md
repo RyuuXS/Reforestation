@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
