@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
