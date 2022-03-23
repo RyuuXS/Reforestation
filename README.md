@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
