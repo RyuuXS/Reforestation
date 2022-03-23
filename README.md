@@ -1,1 +1,2 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
