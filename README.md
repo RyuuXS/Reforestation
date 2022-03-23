@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Which side of the chicken has more feathers? The outside.
