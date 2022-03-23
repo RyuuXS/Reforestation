@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Did you hear about the runner who was criticized? He just took it in stride
