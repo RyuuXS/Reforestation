@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
