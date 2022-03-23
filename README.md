@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
