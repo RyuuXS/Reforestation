@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## I’m reading a book on the history of glue – can’t put it down.
