@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Ever wondered why bees hum? It's because they don't know the words.
