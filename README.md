@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
