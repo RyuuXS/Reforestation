@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
