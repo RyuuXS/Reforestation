@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
