@@ -1,1 +1,2 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
