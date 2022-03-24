@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## What did the ocean say to the shore? Nothing, it just waved.
