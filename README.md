@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
