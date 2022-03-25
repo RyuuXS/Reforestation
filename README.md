@@ -1,1 +1,2 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
