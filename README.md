@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
