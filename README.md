@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
