@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
