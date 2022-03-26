@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
