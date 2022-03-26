@@ -1,1 +1,2 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## What's the difference between a seal and a sea lion?
+## An ion! 
