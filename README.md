@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
