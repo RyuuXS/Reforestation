@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
