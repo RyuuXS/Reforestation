@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
