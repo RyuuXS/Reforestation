@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## How do locomotives know where they're going? Lots of training
