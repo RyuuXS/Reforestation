@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
