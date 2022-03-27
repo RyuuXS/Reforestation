@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Where did Captain Hook get his hook? From a second hand store.
