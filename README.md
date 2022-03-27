@@ -1,1 +1,1 @@
-## What is this movie about? It is about 2 hours long.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
