@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## When does a joke become a dad joke? When it becomes apparent.
