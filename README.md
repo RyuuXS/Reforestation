@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What is this movie about? It is about 2 hours long.
