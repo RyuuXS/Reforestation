@@ -1,1 +1,2 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
