@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Thanks for explaining the word "many" to me. It means a lot.
