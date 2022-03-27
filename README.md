@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
