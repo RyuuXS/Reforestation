@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
