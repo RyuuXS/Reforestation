@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why do crabs never give to charity? Because they’re shellfish.
