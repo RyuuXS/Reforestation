@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
