@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
