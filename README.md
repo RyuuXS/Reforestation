@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
