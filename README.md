@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## When do doctors get angry? When they run out of patients.
