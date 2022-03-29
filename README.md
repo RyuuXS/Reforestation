@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## What did the pirate say on his 80th birthday? Aye Matey!
