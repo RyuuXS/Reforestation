@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
