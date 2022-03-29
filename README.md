@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
