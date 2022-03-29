@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why does it take longer to get from 1st to 2nd base, than it does to get from 2nd to 3rd base? Because there’s a Shortstop in between!
