@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why did the cookie cry? It was feeling crumby.
