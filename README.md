@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## What do you call a bear with no teeth? A gummy bear!
