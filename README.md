@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
