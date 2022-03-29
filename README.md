@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why do crabs never give to charity? Because they’re shellfish.
