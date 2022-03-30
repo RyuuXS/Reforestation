@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
