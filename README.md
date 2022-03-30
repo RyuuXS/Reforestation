@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
