@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
