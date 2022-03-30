@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
