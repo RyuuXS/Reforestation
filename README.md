@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## What do you get hanging from Apple trees? Sore arms.
