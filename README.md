@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
