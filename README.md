@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## How come the stadium got hot after the game? Because all of the fans left.
