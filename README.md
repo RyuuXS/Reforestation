@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
