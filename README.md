@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
