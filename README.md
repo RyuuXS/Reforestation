@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
