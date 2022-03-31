@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
