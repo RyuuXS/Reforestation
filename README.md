@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I started a new business making yachts in my attic this year...the sails are going through the roof
