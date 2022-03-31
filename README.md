@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Shout out to my grandma, that's the only way she can hear.
