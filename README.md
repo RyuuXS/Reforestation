@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
