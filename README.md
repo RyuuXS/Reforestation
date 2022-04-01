@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
