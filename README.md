@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Our wedding was so beautiful, even the cake was in tiers.
