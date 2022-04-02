@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## How do you make a hankie dance? Put a little boogie in it.
