@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Why do fish live in salt water? Because pepper makes them sneeze!
