@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
