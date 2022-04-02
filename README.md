@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
