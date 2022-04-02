@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
