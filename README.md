@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## A termite walks into a bar and asks “Is the bar tender here?”
