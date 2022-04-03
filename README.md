@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
