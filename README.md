@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
