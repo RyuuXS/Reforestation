@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
