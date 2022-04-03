@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Why can't eggs have love? They will break up too soon.
