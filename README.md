@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## How much does a hipster weigh? An instagram.
