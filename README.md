@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Atheism is a non-prophet organisation.
