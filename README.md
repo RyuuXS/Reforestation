@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
