@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
