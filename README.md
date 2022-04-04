@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## What was a more important invention than the first telephone? The second one.
