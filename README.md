@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## How do you fix a broken pizza? With tomato paste.
