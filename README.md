@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
