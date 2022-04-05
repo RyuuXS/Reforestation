@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Conjunctivitis.com – now that’s a site for sore eyes.
