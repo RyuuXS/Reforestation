@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
