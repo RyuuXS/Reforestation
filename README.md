@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## When is a door not a door? When it's ajar.
