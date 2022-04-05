@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## My son is studying to be a surgeon, I just hope he makes the cut.
