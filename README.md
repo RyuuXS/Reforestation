@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## A termite walks into a bar and asks “Is the bar tender here?”
