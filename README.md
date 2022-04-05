@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
