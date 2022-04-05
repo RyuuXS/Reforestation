@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
