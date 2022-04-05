@@ -1,1 +1,2 @@
-## What's blue and not very heavy?  Light blue.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
