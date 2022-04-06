@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Me and my mates are in a band called Duvet. We're a cover band.
