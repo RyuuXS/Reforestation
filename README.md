@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## What animal is always at a game of cricket? A bat.
