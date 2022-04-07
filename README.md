@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Conjunctivitis.com – now that’s a site for sore eyes.
