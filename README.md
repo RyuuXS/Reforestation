@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Thanks for explaining the word "many" to me. It means a lot.
