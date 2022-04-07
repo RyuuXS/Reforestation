@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## What do you call a duck that gets all A's? A wise quacker.
