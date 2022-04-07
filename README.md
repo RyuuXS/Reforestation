@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
