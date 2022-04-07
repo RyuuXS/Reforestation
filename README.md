@@ -1,1 +1,2 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
