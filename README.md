@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
