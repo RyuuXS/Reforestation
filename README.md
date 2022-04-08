@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
