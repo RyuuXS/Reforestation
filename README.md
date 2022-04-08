@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
