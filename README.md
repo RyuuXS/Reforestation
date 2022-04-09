@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
