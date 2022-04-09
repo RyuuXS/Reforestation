@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
