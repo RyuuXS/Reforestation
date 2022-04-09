@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why can't a bicycle stand on its own? It's two-tired.
