@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
