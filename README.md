@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
