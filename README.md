@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
