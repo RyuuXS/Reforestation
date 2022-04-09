@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
