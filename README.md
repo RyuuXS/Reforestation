@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## I knew a guy who collected candy canes, they were all in mint condition
