@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## I decided to sell my Hoover… well it was just collecting dust.
