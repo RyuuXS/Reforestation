@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
