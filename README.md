@@ -1,1 +1,2 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Where do cats write notes?
+## Scratch Paper!
