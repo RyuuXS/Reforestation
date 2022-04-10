@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
