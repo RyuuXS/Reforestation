@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## To the guy who invented zero... thanks for nothing.
