@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Did you hear about the kidnapping at school? It's ok, he woke up.
