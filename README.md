@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Where do young cows eat lunch? In the calf-ateria.
