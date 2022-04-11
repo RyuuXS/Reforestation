@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Sore throats are a pain in the neck!
