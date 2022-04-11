@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
