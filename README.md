@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
