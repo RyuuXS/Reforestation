@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## What's brown and sticky? A stick.
