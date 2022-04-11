@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
