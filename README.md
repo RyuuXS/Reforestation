@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
