@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## Why is the ocean always blue? Because the shore never waves back.
