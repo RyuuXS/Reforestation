@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
