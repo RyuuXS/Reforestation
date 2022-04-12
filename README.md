@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
